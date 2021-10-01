@@ -1,2 +1,0 @@
-# kansloze-stoel
-vara design
